@@ -14,4 +14,6 @@ On pony town always W2I and C+H so feel free to come up to me whenever I'm onlin
 
 Also usually seen sitting with @piglinmynose and @Alexia1shere 
 
+<img src="https://komarev.com/ghpvc/?username=evil-xisumer&color=7c2b5e&style=flat-square&label=you_are_view_number.." />
+
 ![divider by digilatte on tumblr!!](https://64.media.tumblr.com/b29c44f7ae63dfb8d3b03e49a13edd0a/08210d022af32bf2-23/s2048x3072/008ebad4900049b8f863e08299498ed95d0cc727.pnj)
