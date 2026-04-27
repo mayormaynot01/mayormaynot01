@@ -3,6 +3,7 @@
 > Vampires don't get happy endings.
 
 ![art by autonomyss on tumblr!!](https://ajajajuh.carrd.co/assets/images/image02.png?v=969a8a87)
+> Art by autonomyss on tumblr
 
 My name is May/Majus, Hotguy, Cleo or generally what pony I'm using at the moment!
 
@@ -17,3 +18,4 @@ Also usually seen sitting with @piglinmynose and @Alexia1shere
 <img src="https://komarev.com/ghpvc/?username=mayormaynot01&color=7c2b5e&style=flat-square&label=you_are_view_number.." />
 
 ![divider by digilatte on tumblr!!](https://64.media.tumblr.com/b29c44f7ae63dfb8d3b03e49a13edd0a/08210d022af32bf2-23/s2048x3072/008ebad4900049b8f863e08299498ed95d0cc727.pnj)
+> divider by digilatte on tumblr
