@@ -14,6 +14,10 @@ $\color{#e64132}{\textsf{ I'm a 16yo art student! (psst if ya wanna see my art c
 $\color{#e64132}{\textsf{ I'm mainly interested in mcyt but my sub hyperfixation changes a lot!! }}$ 
 $\color{#4a1e2b}{\textsf{ Currently it's Atla!! I'm writing an au out of it aswell ooo }}$ 
 
+$\color{#e64132}{\textsf{ No. 1 moonrot shipper btw gng }}$ 
+
+> $\color{#e64132}{\textsf{ Will you be the Pearl to my Cleo? ♥︎ }}$ 
+
 $\color{#e64132}{\textsf{ On pony town always W2I and C+H so feel free to come up to me whenever I'm online! }}$ 
 $\color{#e64132}{\textsf{ If you need help with ponies or color theory I'm your guy!! }}$ 
 
